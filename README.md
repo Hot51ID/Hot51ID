@@ -19,3 +19,7 @@ Website: https://www.pinterest.com/Hot51ID/
 Website: https://www.tumblr.com/hot51myid
 
 Website: https://www.threads.net/@hot51id
+
+Website: https://ssstikd.io/
+
+Website: https://ssstiktok.tv/
